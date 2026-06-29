@@ -1,4 +1,4 @@
-
+exclusive be a lucky block Script is the best be a lucky block Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
